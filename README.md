@@ -1,4 +1,4 @@
 ## Hi there 👋
 ## Saya Abdan Syakuro
-## Nama panggilan Abdan atau Kuro.
+## Saya merupakan siswa dari SMK Informatika Pesat
 
