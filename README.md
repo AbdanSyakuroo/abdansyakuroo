@@ -1,4 +1,4 @@
 ## Hi there 👋
-## Saya siapa
-## Siapa saya
+## Saya Abdan Syakuro
+## Nama panggilan Abdan atau Kuro.
 
